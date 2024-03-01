@@ -33,8 +33,6 @@ WP Host represents a groundbreaking technology that provides lifetime hosting fo
 
 ## WP Host Review – About Creators
 
-![](https://www.ai-oto-review.com/wp-content/uploads/2024/02/WP-Host-Creator.png
-
 - **Creators:** Amit Gaikwad and Anirudh Baavra
 
 Amit Gaikwad and Anirudh Baavra form an unstoppable duo, combining their expertise and creativity to innovate cloud-based software specifically designed to empower affiliate marketing.
